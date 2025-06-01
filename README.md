@@ -1,4 +1,3 @@
-![tiktok badboys](https://rushter.com/counter.svg)
 
 ![alt text](https://static.wikia.nocookie.net/vsbattles/images/d/d2/Switzerlandbasche2.png/revision/latest/scale-to-width-down/400?cb=20170606133114)
 
