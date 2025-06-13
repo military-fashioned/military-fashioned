@@ -1,6 +1,6 @@
-ㅤ ㅤㅤ ㅤ        i change fixations fast so uhh
+ ![hi](https://files.catbox.moe/1ipw1u.gif)
 
-꒰ㅤ ㅤ    ![hi](https://komarev.com/ghpvc/?username=military-fashioned) 
+ ㅤ  ㅤ     ꒰ㅤ ㅤ    ![hi](https://komarev.com/ghpvc/?username=military-fashioned) 
   ㅤ ㅤノ ㅤ ㅤ   [rentry](https://rentry.co/military-fashion)ㅤ ㅤ    ꒱
 
-  ![hi](https://files.catbox.moe/183la8.webp)
+  ㅤ ㅤㅤ ㅤ     ㅤ       i change fixations fast so uhh
