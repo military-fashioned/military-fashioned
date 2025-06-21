@@ -3,4 +3,4 @@
 ![hi](https://komarev.com/ghpvc/?username=military-fashioned) 
  
 [rentry](https://rentry.co/military-fashion) 
-  ㅤ ㅤノ ㅤ ㅤ   [atabook](https://dancingfactory.atabook.org/)  ㅤ ㅤノ ㅤ ㅤ   [strawpage](https://robulyaoi.straw.page)
+  ㅤ  ㅤ[atabook](https://dancingfactory.atabook.org/)  ㅤ  ㅤ[strawpage](https://robulyaoi.straw.page)
