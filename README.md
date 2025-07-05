@@ -1,4 +1,5 @@
 
+
  # ![hi](https://files.catbox.moe/5kv6y5.jpg)
 
  
@@ -7,6 +8,6 @@
  ![kebabs](https://komarev.com/ghpvc/?username=military-fashioned)
 ⠀⠀⠀⠀⠀
 
-![hi](https://files.catbox.moe/1dl0f8.webp) ![hi](https://files.catbox.moe/lvzkeo.gif)
+
 
 
