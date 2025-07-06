@@ -7,6 +7,6 @@
   <a href="https://dancingfactory.atabook.org/">atabook</a>⠀⠀✦⠀⠀
   <a href="https://robulyaoi.straw.page">strawpage</a>
   <br><br>
-  
-  chat how do you align the profile veiws thing to the center
-![](https://komarev.com/ghpvc/?username=military-fashioned&color=ff69b4&abbreviated=true&label=^u^)
+<div align="center">
+ 
+ ![](https://komarev.com/ghpvc/?username=military-fashioned&color=ff69b4&abbreviated=true&label=^u^)
