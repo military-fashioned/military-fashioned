@@ -9,4 +9,4 @@
   <br><br>
 <div align="center">
  
- ![](https://komarev.com/ghpvc/?username=military-fashioned&color=ff69b4&abbreviated=true&label=^q^)
+ ![](https://komarev.com/ghpvc/?username=military-fashioned&color=ff69b4&&label=^q^)
