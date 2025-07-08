@@ -1,7 +1,6 @@
 <p align="center">
-<img width="750" src="https://files.catbox.moe/5kv6y5.jpg" alt="Material Bread logo">
-</p>
- <p align="center">
+<img width="200" src="https://files.catbox.moe/gqfb8u.png" alt="header">
+</p><p align="center">
   <b></b><br>
   <a href="https://rentry.co/doomedcivilization">rentry</a>⠀⠀✦⠀⠀
   <a href="https://dancingfactory.atabook.org/">atabook</a>⠀⠀✦⠀⠀
