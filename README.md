@@ -4,7 +4,7 @@
   <b></b><br>
   <a href="https://rentry.co/doomedcivilization">rentry</a>⠀⠀✦⠀⠀
   <a href="https://dancingfactory.atabook.org/">atabook</a>⠀⠀✦⠀⠀
-  <a href="https://robulyaoi.straw.page">strawpage</a>
+  <a href="https://www.tiktok.com/@dynqmite_factory">tiktok</a>
   <br><br>
 <div align="center">
  
