@@ -1,5 +1,3 @@
-<p align="center">
-<img width="200" src="https://files.catbox.moe/l911po.png" alt="header">
 </p><p align="center">
   <b></b><br>
   <a href="https://rentry.co/bloominghydragea">rentry</a>⠀⠀✦⠀⠀
