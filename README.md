@@ -6,5 +6,5 @@
   <br><br>
 <div align="center">
  
- ![](https://komarev.com/ghpvc/?username=military-fashioned&color=ff69b4&&label=^q^)
+ ![](https://komarev.com/ghpvc/?username=military-fashioned&color=2e415f&&label=angels)
 
