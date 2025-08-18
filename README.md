@@ -1,5 +1,5 @@
 </p><p align="center">
-<img src="https://files.catbox.moe/fj9m7a.gif"/> <img src="https://files.catbox.moe/foa1q2.png" />
+<img src="https://files.catbox.moe/yce34s.webp"/> <img src="https://files.catbox.moe/rq9qe7.png" />
 </p><p align="center">
 <b></b><br>
 <a href="https://rentry.co/bunnymedicine">rentry</a> ⠀⠀✦⠀⠀
