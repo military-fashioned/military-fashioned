@@ -3,6 +3,5 @@
 <b></b><br>
 <b></b><br>
 <a href="https://rentry.co/historypilled">rent</a> ⠀
-<a href="https://dancingfactory.atabook.org/">ata</a> ⠀
-<a href="https://www.tiktok.com/@doomed_civilization">tt</a>
+<a href="https://linktr.ee/kawqiiangel">ext.</a> ⠀
   <br><br>
