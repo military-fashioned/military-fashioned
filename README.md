@@ -1,7 +1,7 @@
 </p><p align="center">
-<img src="https://files.catbox.moe/yce34s.webp"/> <img src="https://files.catbox.moe/rq9qe7.png" />
+<img src="https://files.catbox.moe/b7sgqq.jpg" width="470"/>
 <b></b><br>
 <b></b><br>
-<a href="https://rentry.co/historypilled">rent</a> ⠀
-<a href="https://linktr.ee/kawqiiangel">ext.</a> ⠀
+<a href="https://rentry.co/historypilled">rentry</a> ⠀
+<a href="https://linktr.ee/kawqiiangel">linktr.ee</a> ⠀
   <br><br>
